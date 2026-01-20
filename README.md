@@ -1,0 +1,1 @@
+# mr-ideal-seo-aieo-demo
